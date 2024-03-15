@@ -5,7 +5,7 @@
 - 📫 You can reach me at lauricejoie.m@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love connecting people and solving problems and am even happy to play cupid if needed. haha. I also love playing the tambourine during Karaoke sessions. 🎤
-Aside from singing emo, LinkedIn park, Paramore, or millennial generation songs. 😄
+Aside from singing emo, Linkin park, Paramore, or millennial generation songs. 😄
 
 <!---
 Minlaur/Minlaur is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
